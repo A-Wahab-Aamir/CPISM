@@ -30,6 +30,9 @@ For Connecting With me Email on abdulwahabamir4@gamil.com or contact me on 0311-
 - Optimize Web for Search Engines
 - Semester eProject
 
+### Learning
+![image](https://github.com/A-Wahab-Aamir/CPISM/assets/83786802/eb143565-c849-44fa-90aa-2d253d607915)
+
 
 ## 🛠 Job Profile
 - Website Developer

@@ -36,3 +36,12 @@ For Connecting With me Email on abdulwahabamir4@gamil.com or contact me on 0311-
 
 ## Youtube 
 https://github.com/A-Wahab-Aamir
+
+## Other Social Links
+#### Webiste: https://abdul0999.netlify.app/
+#### Instagram https://www.instagram.com/abdul_wahab_amir.5836/
+#### Quora https://www.quora.com/profile/Abdul-Wahab-Amir-3
+#### Facebook  https://www.facebook.com/abdulwahab.amir.5836
+#### Linkedin https://www.linkedin.com/in/abdulwahabamir/
+#### Playlist https://www.youtube.com/@CodePlusPoint/playlists
+

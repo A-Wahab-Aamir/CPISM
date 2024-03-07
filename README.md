@@ -40,6 +40,9 @@ For Connecting With me Email on abdulwahabamir4@gamil.com or contact me on 0311-
 ## Youtube 
 https://github.com/A-Wahab-Aamir
 
+### ALL SOFTWARES TO BE INSTALLED
+https://mega.nz/folder/lCsAxJQA#gA0Z35mFAAQPIiySFFhXcA
+
 ## Other Social Links
 #### Webiste: https://abdul0999.netlify.app/
 #### Instagram https://www.instagram.com/abdul_wahab_amir.5836/
